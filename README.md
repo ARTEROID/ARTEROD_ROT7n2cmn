@@ -1,1 +1,0 @@
-# ARTEROD_ROT7n2cmn
